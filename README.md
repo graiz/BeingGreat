@@ -45,7 +45,8 @@ Please find those that resonate with you, donate time, money, or both.
 - [Mexican American Legal Defense and Education Fund](http://www.maldef.org/)
 - [Muslim Justice League](https://www.muslimjusticeleague.org)
 - [Workers Defense Project](http://www.workersdefense.org/)
-- [Asian Family Support Services of Austin](http://www.saheli-austin.org/)
+- [Lawyers' Committee for Civil Rights Under Law](https://lawyerscommittee.org/)
+- [Southern Christian Leadership Conference](http://nationalsclc.org/)
 
 
 
