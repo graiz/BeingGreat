@@ -34,7 +34,7 @@ Please find those that resonate with you, donate time, money, or both.
 - [NARAL](https://actnow.prochoiceamerica.org) - ProChoiceAmerica 
 - [Center for Reproductive Rights](https://www.reproductiverights.org/) - global org for women's reproductive rights
 
-##Civil Rights
+## Civil Rights
 
 - [ACLU -](https://www.aclu.org/)  American Civil Liberties Union - Protects the consitutition. 
 - [Anti Defamation League](http://newengland.adl.org/) (Anti-Semitism) 
@@ -44,6 +44,8 @@ Please find those that resonate with you, donate time, money, or both.
 - [NAACP LDF (](http://www.naacpldf.org/)people of color)
 - [Mexican American Legal Defense and Education Fund](http://www.maldef.org/)
 - [Muslim Justice League](https://www.muslimjusticeleague.org)
+- [Workers Defense Project](http://www.workersdefense.org/)
+- [Lawyers' Committee for Civil Rights Under Law](https://lawyerscommittee.org/)
 
 
 
