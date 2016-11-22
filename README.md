@@ -46,7 +46,6 @@ Please find those that resonate with you, donate time, money, or both.
 - [Muslim Justice League](https://www.muslimjusticeleague.org)
 - [Workers Defense Project](http://www.workersdefense.org/)
 - [Lawyers' Committee for Civil Rights Under Law](https://lawyerscommittee.org/)
-- [Southern Christian Leadership Conference](http://nationalsclc.org/)
 
 
 
