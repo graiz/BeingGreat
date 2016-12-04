@@ -14,6 +14,8 @@ Please find those that resonate with you, donate time, money, or both.
 	- [New York Times](http://www.nytimes.com/subscriptions/inyt/lp87JWF.html)
 	- [Washington Post](https://subscribe.washingtonpost.com)
 	- [ProPublica](https://www.propublica.org/donate/) 
+	- [Poynter Institute](http://www.poynter.org/)
+	- [The Atlantic](https://www.theatlantic.com/)
 	- Other local and national newspapers that you feel will hold government accountable via non-partisan reporting. 
 
 ## Environment
@@ -46,6 +48,7 @@ Please find those that resonate with you, donate time, money, or both.
 - [Muslim Justice League](https://www.muslimjusticeleague.org)
 - [Workers Defense Project](http://www.workersdefense.org/)
 - [Lawyers' Committee for Civil Rights Under Law](https://lawyerscommittee.org/)
+- [Electronic Frontier Foundation](https://www.eff.org/)
 
 
 
